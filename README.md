@@ -12,6 +12,4 @@ Through this class, and over the course of the MAPSS program, I am hoping to:
 
 3. expand my conception and uderstanding of the role of data in social science 
 
-![Image of me]
-(https://scontent-ort2-2.xx.fbcdn.net/v/t1.0-9/70464351_3065084433507071_534012551134969856_o.jpg?_nc_cat=110&_nc_oc=AQmjKcSZpFYeCpDqoGBe-7E3AD7RXu9nggp5QIua4BekFAPPugR4VQkUZtSIS_v4uOk&_nc_ht=scontent-ort2-2.xx&oh=9205bf8a28a1c6cb3306a6bb19760197&oe=5E2E3DF2)
-k
+![image of me](https://scontent-ort2-2.xx.fbcdn.net/v/t1.0-9/52328253_2646248942057291_7498796436759248896_o.jpg?_nc_cat=106&_nc_oc=AQnPPaILyeCG2zs9lAAXRqh9dV3H_9-J6VoGoggEtUMUUt5Ys9o5wc7Z_uaoNf7DO7g&_nc_ht=scontent-ort2-2.xx&oh=71ec929b4db32cbf0d5025dc184a68a5&oe=5E394BD2)
