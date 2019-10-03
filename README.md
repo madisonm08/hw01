@@ -12,4 +12,6 @@ Through this class, and over the course of the MAPSS program, I am hoping to:
 
 3. expand my conception and uderstanding of the role of data in social science 
 
-![image of me](https://scontent-ort2-2.xx.fbcdn.net/v/t1.0-9/52328253_2646248942057291_7498796436759248896_o.jpg?_nc_cat=106&_nc_oc=AQnPPaILyeCG2zs9lAAXRqh9dV3H_9-J6VoGoggEtUMUUt5Ys9o5wc7Z_uaoNf7DO7g&_nc_ht=scontent-ort2-2.xx&oh=71ec929b4db32cbf0d5025dc184a68a5&oe=5E394BD2)
+![Chinese New Year celebration in LA earlier this year](https://scontent-ort2-2.xx.fbcdn.net/v/t1.0-9/52328253_2646248942057291_7498796436759248896_o.jpg?_nc_cat=106&_nc_oc=AQnPPaILyeCG2zs9lAAXRqh9dV3H_9-J6VoGoggEtUMUUt5Ys9o5wc7Z_uaoNf7DO7g&_nc_ht=scontent-ort2-2.xx&oh=71ec929b4db32cbf0d5025dc184a68a5&oe=5E394BD2)
+
+In my spare time, I like to sing, go to concerts (House of Blues is my **favorite** venue), collect pins, and volunteer at animal shelters. 
